@@ -9,4 +9,8 @@ Trois chemins s'offrait à lui mais le quelle emprunter?
 
 Il s'écria : *Bien sûr la technique ancestrale*.  
 Il prit un **bâton** à terre le mit en équilibre sur un bout et le fit tomber.  
-Le bâton tomba vers lui et il dit : *Bon ben demi-tour !*  
+Le bâton tomba vers lui et il dit : *Bon ben demi-tour !*    
+
+Cepandant quand il arriva dans le fond du gouffre,  
+Il se rendit compte qu'il avait oublié comment en sortir  
+Il se mit à chanter frénétiquement:  
