@@ -14,3 +14,13 @@ Le bâton tomba vers lui et il dit : *Bon ben demi-tour !*
 Cepandant quand il arriva dans le fond du gouffre,  
 Il se rendit compte qu'il avait oublié comment en sortir  
 Il se mit à chanter frénétiquement:  
+
+ :blush:  :smiley:  :satisfied:	
+
+**Bitch**, autour de moi j'vois **walou**
+Autour de moi j'vois rien
+Bitch, autour de moi j'vois walou
+Autour de moi j'vois rien
+J'vois rien, j'vois rien
+Walou, rien
+Hein, walou,** rien**
